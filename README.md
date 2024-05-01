@@ -1,2 +1,2 @@
-Hi, i'm zei. random person doing dev stuff.
+Hi, I'm zei, student doing dev.
 dm me [zei](https://x.com/zeii_i)
